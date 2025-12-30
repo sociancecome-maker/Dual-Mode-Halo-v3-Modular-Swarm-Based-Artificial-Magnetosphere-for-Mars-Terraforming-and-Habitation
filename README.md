@@ -116,12 +116,12 @@ This is the original work of Saošyant (@Sociance2). All concepts, calculations,
 Open to formal collaboration with proper credit and acknowledgment.
 
 ## Visuals & Simulations
-[Add links to images/animations here — e.g., L1 swarm, Elon on green Mars releasing bird, precipitation cycles]
+[[https://linksharing.samsungcloud.com/ySRCvHHcGEJt](https://linksharing.samsungcloud.com/7UxvGyJSu2Me) — e.g., L1 swarm, Elon on green Mars releasing bird, precipitation cycles]
 
 ## Contact & Collaboration
 For discussions, collaboration proposals, or media inquiries:  
 @Sociance2 on X  
-Email: [your email if comfortable]
+Email: [Sociancecome@hotmail.com]
 
 #DualModeHaloV3 #MarsTerraforming #ArtificialMagnetosphere #GrokCollaboration #Multiplanetary
 
